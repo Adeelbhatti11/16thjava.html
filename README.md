@@ -1,1 +1,1 @@
-js class 16 by sir adeel haroon
+js class 16 by sir adeel .
